@@ -1,4 +1,4 @@
-- 🗯 Hey there, I’m Manasa Vemuri,a recent CS grad. 
+- 🗯 Hey there, I’m Manasa Vemuri, a recent CS grad. 
 - 👩‍💻 I am interested in the field of Software Development! 
 - 👀 I’m currently looking for opportunities in the IT industry.
 - 📫 You can reach me at, 
