@@ -1,5 +1,7 @@
-📫 You can reach me at, 
-email: manasavemuri19@gmail.com or
+📫 Reach me at-
+
+email: manasavemuri19@gmail.com 
+
 linkedin: www.linkedin.com/in/manasa-vemuri-56a7701a4
 
 <!---
